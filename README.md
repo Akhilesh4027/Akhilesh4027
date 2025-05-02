@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning Btech 3rd year
 - 💞️ I’m looking for good internship 
 - 📫 How to reach me by texts and calls
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+  😉 i would like to eat food without knowing any one 
+  
 
 <!---
 Akhilesh4027/Akhilesh4027 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
