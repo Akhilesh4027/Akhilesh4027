@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Akhilesh chennoju
 - 👀 I’m interested in playing cricket 
-- 🌱 I’m currently learning Btech 3rd year
+- 🌱 I’m currently learning Btech 4rd year
 - 💞️ I’m looking for good internship 
 - 📫 How to reach me by texts and calls
 - 😄 Pronouns: ...
